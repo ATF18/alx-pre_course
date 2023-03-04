@@ -1,1 +1,1 @@
-my secend readme updated
+my readme is up to dated
